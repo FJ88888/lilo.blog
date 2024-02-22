@@ -1,7 +1,7 @@
 +++
 headless = true
-icon = "/img/default-favicon.png"
-logo = "/img/default-logo.png"
-image = "/img/default-image.jpg"
+icon = "/media/esoteric-ouroboros-and-tree-of-life-jjyddb5lalnrrwat.jpg"
+logo = "/media/esoteric-ouroboros-and-tree-of-life-jjyddb5lalnrrwat.jpg"
+image = "/media/esoteric-ouroboros-and-tree-of-life-jjyddb5lalnrrwat.jpg"
 color = "#5a4ae3"
 +++
