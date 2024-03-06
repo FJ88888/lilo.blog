@@ -1,8 +1,8 @@
 +++
-title = "About me"
+title = "Ferris Jost "
 draft = false
+image = "total-war-pharaoh-2076112490.jpg"
 description = ""
-image = "/img/default-author.jpg"
 +++
 ![](/img/default-author.jpg)
 
