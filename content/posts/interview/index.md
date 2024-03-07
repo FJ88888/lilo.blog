@@ -48,13 +48,8 @@ Der hat mir nie zugesagt. Ich hatte schon in der Schule Probleme, weil ich immer
 Und wie reagieren die Leute in deinem Umfeld auf deine Lebensweise?\
 **Ja, gut. Ich bin privat so, wie ich bin. Ich renne natürlich nicht herum mit einer Fahne, wo draufsteht «ich bin eine Hexe und alles ist Magie». Für die bin ich einfach der Willi. Es ist klar, manchmal fragen sie mich um Rat oder ob ich ihnen eine Kerze oder eine Flasche Ritualwein mache. Ich habe viele atheistische Kollegen. Die haben auch kein Problem damit. Schliesslich wissen sie, dass ich mich schon immer dafür interessiert habe.**
 
-> \     *In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre.* 
->
-> ![]()
->
-> ![]()
->
-> *Es ist ein Raum, der sich zwischen den Welten befindet.* 
+\     *In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre.*    \
+ *\    Es ist ein Raum, der sich zwischen den Welten befindet.*           
 
 Was ist der tiefere Sinn des Namens deines Ladens «Zwischenwelt»?\
 **Ah, das ist eine coole Frage. In letzter Zeit kommen immer wieder Leute zu mir, die das Gefühl haben, es habe etwas mit dem Fegefeuer zutun. Das stimmt nicht. Der Gedanke, den ich mir gemacht habe ist, dass wir als Wicca einen heiligen Raum schaffen. In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre. Dazu sagen wir «es ist ein Raum, der sich zwischen den Welten befindet». Du bist im einen in der Realität, aber du schaffst quasi wie einen heiligen Raum, wo du den Übertritt in andere Bewusstseinszustände oder in eine Anderswelt machst. Für mich ist diese Sphäre die Zwischenwelt. Deshalb habe ich den Laden auch so genannt.**
