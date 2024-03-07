@@ -3,7 +3,7 @@ title = "Uns bewegt: Neopaganismus"
 date = "2024-03-07"
 draft = false
 pinned = false
-image = "thumb.jpg"
+image = "download.jpeg"
 description = "Die Bedeutung des Neopaganismus"
 +++
 Uns bewegt: Neopaganismus
