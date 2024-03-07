@@ -48,8 +48,13 @@ Der hat mir nie zugesagt. Ich hatte schon in der Schule Probleme, weil ich immer
 Und wie reagieren die Leute in deinem Umfeld auf deine Lebensweise?\
 **Ja, gut. Ich bin privat so, wie ich bin. Ich renne natürlich nicht herum mit einer Fahne, wo draufsteht «ich bin eine Hexe und alles ist Magie». Für die bin ich einfach der Willi. Es ist klar, manchmal fragen sie mich um Rat oder ob ich ihnen eine Kerze oder eine Flasche Ritualwein mache. Ich habe viele atheistische Kollegen. Die haben auch kein Problem damit. Schliesslich wissen sie, dass ich mich schon immer dafür interessiert habe.**
 
-> \     *In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre.* \
->  *\    Es ist ein Raum, der sich zwischen den Welten befindet.* 
+> \     *In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre.* 
+>
+> ![]()
+>
+> ![]()
+>
+> *Es ist ein Raum, der sich zwischen den Welten befindet.* 
 
 Was ist der tiefere Sinn des Namens deines Ladens «Zwischenwelt»?\
 **Ah, das ist eine coole Frage. In letzter Zeit kommen immer wieder Leute zu mir, die das Gefühl haben, es habe etwas mit dem Fegefeuer zutun. Das stimmt nicht. Der Gedanke, den ich mir gemacht habe ist, dass wir als Wicca einen heiligen Raum schaffen. In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre. Dazu sagen wir «es ist ein Raum, der sich zwischen den Welten befindet». Du bist im einen in der Realität, aber du schaffst quasi wie einen heiligen Raum, wo du den Übertritt in andere Bewusstseinszustände oder in eine Anderswelt machst. Für mich ist diese Sphäre die Zwischenwelt. Deshalb habe ich den Laden auch so genannt.**
@@ -119,4 +124,6 @@ Viele Menschen assoziieren Hexerei mit Katzen. Hast du eine Katze?\
 **Leider nicht mehr. Ja, ich hatte Katzen und ich liebe Katzen. Die Letzte ist vor zwei Jahren ins Sommerland gezogen. Alle meine Katzen sind sehr alt geworden. Also, ich liebe auch Hunde und Meerschweinchen, aber Katzen haben tatsächlich einen anderen Zugang zur Anderswelt. Wenn ich Besuch aus anderen Welten hatte oder etwas Magisches gearbeitet habe, das ist jetzt wieder ein Klischee, Luna, eine schwarze Katze, die hat das gespürt. Die war drei Zimmer weiter und ich habe begonnen in meinem Raum zu visualisieren, Elemente begrüsst, die ist aufgesprungen, kam rein, hat sich hingesetzt und mir zugeschaut. Wenn ich einen schlechten Traum hatte oder von einer unfreiwilligen Ermessensreise zurückgekommen bin und etwas mitgenommen habe, die Katzen habe das gesehen. Alle drei waren auf dem Bett und haben hingestarrt. Katzen haben einen anderen Draht. Hunde übrigens auch, dass wird oft unterschätzt, aber Hunde drücken es wahrscheinlich anders aus.**
 
 > \    Wilhelm Hass ist 58-jährig und in Wien geboren. Seit 2001 betreibt er seinen\
->              Laden "Zwischenwelt" in Luzern. Er ist eine Hexe und Wicca-Priester.
+>              Laden "Zwischenwelt" in Luzern. Er ist eine Hexe und Wicca-Priester. 
+>
+> ![Wilhelm Hass ist 58-jährig. Seit 2001 betreibt er seinen Laden "Zwischenwelt" in Luzern. Er ist eine Hexe und Wicca-Priester.](image.jpeg)
