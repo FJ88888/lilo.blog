@@ -48,8 +48,8 @@ Der hat mir nie zugesagt. Ich hatte schon in der Schule Probleme, weil ich immer
 Und wie reagieren die Leute in deinem Umfeld auf deine Lebensweise?\
 **Ja, gut. Ich bin privat so, wie ich bin. Ich renne natürlich nicht herum mit einer Fahne, wo draufsteht «ich bin eine Hexe und alles ist Magie». Für die bin ich einfach der Willi. Es ist klar, manchmal fragen sie mich um Rat oder ob ich ihnen eine Kerze oder eine Flasche Ritualwein mache. Ich habe viele atheistische Kollegen. Die haben auch kein Problem damit. Schliesslich wissen sie, dass ich mich schon immer dafür interessiert habe.**
 
-> \     *In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre.*    \
->  *\    Es ist ein Raum, der sich zwischen den Welten befindet.*           
+\     *In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre.*    \
+ *\    Es ist ein Raum, der sich zwischen den Welten befindet.*           
 
 Was ist der tiefere Sinn des Namens deines Ladens «Zwischenwelt»?\
 **Ah, das ist eine coole Frage. In letzter Zeit kommen immer wieder Leute zu mir, die das Gefühl haben, es habe etwas mit dem Fegefeuer zutun. Das stimmt nicht. Der Gedanke, den ich mir gemacht habe ist, dass wir als Wicca einen heiligen Raum schaffen. In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre. Dazu sagen wir «es ist ein Raum, der sich zwischen den Welten befindet». Du bist im einen in der Realität, aber du schaffst quasi wie einen heiligen Raum, wo du den Übertritt in andere Bewusstseinszustände oder in eine Anderswelt machst. Für mich ist diese Sphäre die Zwischenwelt. Deshalb habe ich den Laden auch so genannt.**
@@ -82,8 +82,8 @@ Also, ist das auch hier individuell geprägt?\
 Wie unterscheidet sich der Wicca-Kult hauptsächlich von den abrahamitischen Weltreligionen?\
 **Dadurch, dass es vor allem keine Zentralstelle gibt, die dir vorschreibt, was du zu tun hast. Dann eben, dass Wiccas mit dem Götterbild arbeiten, von dem sie sich angesprochen fühlen. Also, wir haben keine Gottheit, die zentral oben steht. Vor allem aber, dass dem Weiblichen in Wicca einer grosser, ursprünglich sogar einem grösseren Wert zugesprochen wurde als dem Männlichem. Das heisst, die Göttin war immer ein Faktor in Wicca. Das Weiblich-Göttliche findet man in abrahamitischen Religionen nicht mehr so.**                                  
 
-> \    *Wir beten unsere Götter nicht an. Sie sind von uns ein Teil in der Welt,* \
->  *\    sind auch ein Teil von uns selber und gleichwohl erfahrbar in anderen Realitäten.*
+\    *Wir beten unsere Götter nicht an. Sie sind von uns ein Teil in der Welt,* \
+ *\    sind auch ein Teil von uns selber und gleichwohl erfahrbar in anderen Realitäten.*
 
 Also kann man sagen, dass jede Wicca ihre Lieblingsgottheit hat?\
 **Ich würde nicht sagen Lieblingsgottheit, das klingt so, als würde man einen Star anhimmeln. Wir beten unsere Götter nicht an, nicht so wie im Katholizismus. Sie sind von uns ein Teil in der Welt, sind auch ein Teil von uns selber und gleichwohl erfahrbar in anderen Realitäten.**
@@ -94,7 +94,7 @@ Woran erkennen sich Wiccas? Zum Beispiel an Amuletten oder Tätowierungen? Oder 
 Braucht es ein Aufnahmeritual um Wicca zu werden?\
 **Die Frage ist, ob du einem Coven beitreten möchtest, respektiv in einem Zirkel eine Ausbildung machst. Dann bist du eine Zeit lang dabei und wenn die anderen das Gefühl haben, dass passt, dann durchläufst du ein Aufnahmeritual. Dann hast du die erste Initiation und gehst den offiziellen Weg und dort drin kannst du bis zur Priesterschaft aufsteigen.**
 
-> Kraftorte findet man überall, sogar in der Stadt, dass vergessen viele. 
+\    Kraftorte findet man überall, sogar in der Stadt, dass vergessen viele. 
 
 Welche Bedeutung haben Wälder für dich? Gibt es dort spezielle Kraftorte?\
 **Kraftorte finde man überall, sogar in der Stadt, dass vergessen viele. Auch Kirchen sind oft an Kraftorten gebaut. Ich spüre jeweils wie es vibriert. Aber die freie Natur ist absolut unschlagbar. Draussen den Kontakt zu knüpfen, sich wieder zu besinnen, den Ursprung des Lebens, das Göttlich eben, das ist schon etwas Besonderes. Gewisse Orte pulsieren. Der Pilatus zum Beispiel ist ein heiliger Ort, der hat eine besonders starke maskuline Energie. Die Rigi, wenn ich dort rauf gehe, spüre ich die eher weichere, femininere Energie. Im Wald hat es viele Linien und Ort, wo ich spüre, da tut sich etwas. Und es ist wie überall im Leben, manchmal fühlt es sich gut an und manchmal merkst du, jetzt bist du nicht willkommen. Die Energie wird anders.**
@@ -121,7 +121,7 @@ Wir opfern oft Blumen, Trankopfer sowie Speiseopfer oder wir spenden als Opfer a
 Viele Menschen assoziieren Hexerei mit Katzen. Hast du eine Katze?\
 **Leider nicht mehr. Ja, ich hatte Katzen und ich liebe Katzen. Die Letzte ist vor zwei Jahren ins Sommerland gezogen. Alle meine Katzen sind sehr alt geworden. Also, ich liebe auch Hunde und Meerschweinchen, aber Katzen haben tatsächlich einen anderen Zugang zur Anderswelt. Wenn ich Besuch aus anderen Welten hatte oder etwas Magisches gearbeitet habe, das ist jetzt wieder ein Klischee, Luna, eine schwarze Katze, die hat das gespürt. Die war drei Zimmer weiter und ich habe begonnen in meinem Raum zu visualisieren, Elemente begrüsst, die ist aufgesprungen, kam rein, hat sich hingesetzt und mir zugeschaut. Wenn ich einen schlechten Traum hatte oder von einer unfreiwilligen Ermessensreise zurückgekommen bin und etwas mitgenommen habe, die Katzen habe das gesehen. Alle drei waren auf dem Bett und haben hingestarrt. Katzen haben einen anderen Draht. Hunde übrigens auch, dass wird oft unterschätzt, aber Hunde drücken es wahrscheinlich anders aus.**
 
-> \    Wilhelm Haas ist 58-jährig und in Wien geboren. Seit 2001 betreibt er seinen\
->              Laden "Zwischenwelt" in Luzern. Er ist eine Hexe und Wicca-Priester. 
->
-> ![Wilhelm Haas in seinem Hexenladen "Zwischenwelt" in Luzern. ](image.jpeg)
+\    Wilhelm Haas ist 58-jährig und in Wien geboren. Seit 2001 betreibt er seinen\
+             Laden "Zwischenwelt" in Luzern. Er ist eine Hexe und Wicca-Priester. 
+
+![Wilhelm Haas in seinem Hexenladen Zwischenwelt in Luzern. ](image.jpeg)
