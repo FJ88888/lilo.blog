@@ -3,10 +3,12 @@ title = "Interview"
 date = "2024-03-07"
 draft = false
 pinned = false
-image = "screenshot-2024-03-07-141621.png"
-description = "Interview mit Wilhelm Haas, einem Wicca-Priester und Hexer."
+image = "image.jpeg"
+description = ""
 +++
-**Von Magie und Gottheiten**Gespräch mit Wilhelm Haas über moderne Hexen, Kelten, Götter und die Zwischenwelt.\
+**Von Magie und Gottheiten**
+
+Gespräch mit Wilhelm Haas über moderne Hexen, Kelten, Götter und die Zwischenwelt.\
 \
 **Wilhelm Haas ist eine bekennende Hexe. Er hat mir erzählt, wie er seinen Weg in die Wicca-Bewegung gefunden hat und was Magie im 21. Jahrhundert für ihn bedeutet.**\
 \
@@ -23,7 +25,7 @@ Hat sich im Verlauf der Jahre die Art und Anzahl der Kundschaft verändert?\
 **Es kommen Personen vorbei, die sich für Mythologie interessieren. Ob Mythologen dabei sind, weiss ich nicht, weisst du, die würden mir das nicht sagen (lacht).**Du nennst dich eine progressive Hexe – was darf man darunter verstehen?\
 **Progressiv ist für mich, dass ich nicht mehr zu sehr den Dogmatismen und der Tradition folge, die ich gelernt habe. Ich habe meinen eigenen Weg entwickelt. Bin offen für Technik, Modernes. Ich finde, Hexentum sollte nicht nur wie früher gelebt werden.**Also, so ein bisschen dieses archaische?\
 **Genau, also dieses archaische ist immer gut, aber wir leben im 21. Jahrhundert. Ich finde Magie und Hexentum ist Kreativität und lebt von der Kreativität der Zeit, in der man lebt.**Wann in deinem Leben hast du begonnen, dich mit dieser Art von Spiritualität auseinanderzusetzen? Gab es einen Auslöser?\
-**Mit 18 Jahren habe ich das Buch «Die Nebel von Avalon» gelesen. Das war für mich der erste Auslöser. Darin kamen eine Göttin und Kelten vor. Das hat mich sofort angesprochen. 1998 habe ich in Amerika gelebt und in einer Talkshow eine Priesterin der Wicca-Bewegung gesehen. Sie hat ihren spirituellen Weg beschrieben und da hat es bei mir «boing, boing» gemacht. Ich wusste, das ist mein Weg, den ich einschlagen möchte. Ich begann mich mit dem Thema auseinanderzusetzen und bin schnell mit Gleichgesinnten in Berührung gekommen. Auch hatte ich das Glück einen Coven (Hexenzirkel, Anmerkung Redaktion) zu finden, wo ich lernen konnte. **Im Zuge meiner Recherchen habe ich gelesen, dass du im katholischen Wien aufgewachsen bist. Welchen persönlichen Bezug hattest du zur Kirche?\
+**Mit 18 Jahren habe ich das Buch «Die Nebel von Avalon» gelesen. Das war für mich der erste Auslöser. Darin kamen eine Göttin und Kelten vor. Das hat mich sofort angesprochen. 1998 habe ich in Amerika gelebt und in einer Talkshow eine Priesterin der Wicca-Bewegung gesehen. Sie hat ihren spirituellen Weg beschrieben und da hat es bei mir «boing, boing» gemacht. Ich wusste, das ist mein Weg, den ich einschlagen möchte. Ich begann mich mit dem Thema auseinanderzusetzen und bin schnell mit Gleichgesinnten in Berührung gekommen. Auch hatte ich das Glück einen Coven (Hexenzirkel, Anmerkung Redaktion) zu finden, wo ich lernen konnte.** Im Zuge meiner Recherchen habe ich gelesen, dass du im katholischen Wien aufgewachsen bist. Welchen persönlichen Bezug hattest du zur Kirche?\
 **Das sind so Wellenbewegungen. Als Kind wollte ich sogar Priester werden, die Rituale haben mich fasziniert. Weihrauch habe ich geliebt. Meine Eltern haben mich in eine katholische Pfadfinder-Jugendgruppe geschickt und dort hatte man für meine Interessen kein Verständnis. Es wurde behauptet, dass sei alles dämonisch und böse. Da bin ich etwas ins Straucheln gekommen. Ich war sowieso ein bisschen anders, immer schon etwas der Aussenseiter und dann bekam ich «die Offenbarung» in die Hand gedrückt zum Lesen. Das war nicht unbedingt die beste Lektüre. Daraufhin habe ich begonnen mich über die Kirche zu informieren, habe Bücher gelesen über die Entstehungsgeschichte und habe schnell gemerkt, dass mir das nicht zusagt.**Der strikte Monotheismus?**\
 Der hat mir nie zugesagt. Ich hatte schon in der Schule Probleme, weil ich immer gefragt habe, wieso Gott eigentlich unbedingt ein Mann sein muss. Als ich bei Wicca eingestiegen bin, kam da ein kleiner Revoluzzer Trieb zum Vorschein, wo ich dachte, die Kirche ist schlecht. Aber mit der Zeit habe ich gelernt, dass auch bei der Kirche nicht alles schlecht ist. Ich sage mal so, es gibt Leute, die «schlecht» sind. Auf der anderen Seite wurde ich an Universitäten eingeladen und habe vor Theologen und Studenten Vorträge gehalten. Es sind eher die Freikirchen, die fanatisch sind.**
 
