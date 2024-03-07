@@ -11,8 +11,7 @@ footnotes = "Quellen: Augenschein vor Ort, persönliches Gespräch mit Wilhelm H
 
 Gespräch mit Wilhelm Haas über moderne Hexen, Kelten, Götter und die Zwischenwelt.
 
-\    Ferris Jost\
-\
+\    \
 **Wilhelm Haas ist eine bekennende Hexe. Er hat mir erzählt, wie er seinen Weg in die Wicca-Bewegung gefunden hat und was Magie im 21. Jahrhundert für ihn bedeutet.**\
 \
 Ich treffe Wilhelm Haas in seinem Laden «Zwischenwelt» in Luzern. Ein Sammelsurium von spirituellen Symbolen, Runen, Bücher und Räucherwerken umgibt uns. Es riecht nach Räucherstäbchen.
