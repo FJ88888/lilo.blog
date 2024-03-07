@@ -126,4 +126,4 @@ Viele Menschen assoziieren Hexerei mit Katzen. Hast du eine Katze?\
 > \    Wilhelm Hass ist 58-jährig und in Wien geboren. Seit 2001 betreibt er seinen\
 >              Laden "Zwischenwelt" in Luzern. Er ist eine Hexe und Wicca-Priester. 
 >
-> ![Wilhelm Hass ist 58-jährig. Seit 2001 betreibt er seinen Laden "Zwischenwelt" in Luzern. Er ist eine Hexe und Wicca-Priester.](image.jpeg)
+> ![Wilhelm Haas in seinem Hexenladen "Zwischenwelt" in Luzern. ](image.jpeg)
