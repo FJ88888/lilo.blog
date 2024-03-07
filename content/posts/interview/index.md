@@ -3,7 +3,7 @@ title = "Interview"
 date = "2024-03-07"
 draft = false
 pinned = false
-image = "image.jpeg"
+image = "screenshot-2024-03-07-141431.png"
 description = "Interview mit Wilhelm Haas, einem Wicca-Priester und Hexer."
 +++
 **Von Magie und Gottheiten**Gespräch mit Wilhelm Haas über moderne Hexen, Kelten, Götter und die Zwischenwelt.\
