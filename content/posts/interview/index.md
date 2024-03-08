@@ -91,7 +91,7 @@ Woran erkennen sich Wiccas? Zum Beispiel an Amuletten oder Tätowierungen? Oder 
 **Ja, das ist ein Klischee. Es gibt viele Leute, die mit nordischen oder keltischen Symbolen tätowiert sind, ohne damit sie etwas besonderes verknüpfen. Ich hatte letztens eine Handwerkerin unten im Keller gehabt, bei uns im Haus, und sie hat ein Amulett mit Runenpentagramm getragen. Da habe ich sofort reagiert und gesagt, ich kenne dieses Amulett. Dadurch sind wir ins Gespräch gekommen. Sie hat meinen Laden auch gekannt (lacht).**
 
 Braucht es ein Aufnahmeritual um Wicca zu werden?\
-**Die Frage ist, ob du einem Coven beitreten möchtest, respektiv in einem Zirkel eine Ausbildung machst. Dann bist du eine Zeit lang dabei und wenn die anderen das Gefühl haben, dass passt, dann durchläufst du ein Aufnahmeritual. Dann hast du die erste Initiation und gehst den offiziellen Weg und dort drin kannst du bis zur Priesterschaft aufsteigen.**
+**Die Frage ist, ob du einem Coven beitreten möchtest, respektiv in einem Zirkel eine Ausbildung machst. Dann bist du eine Zeit lang dabei und wenn die Anderen das Gefühl haben, dass passt, dann durchläufst du ein Aufnahmeritual. Dann hast du die erste Initiation und gehst den offiziellen Weg und dort drin kannst du bis zur Priesterschaft aufsteigen.**
 
 \    Kraftorte findet man überall, sogar in der Stadt, dass vergessen viele. 
 
