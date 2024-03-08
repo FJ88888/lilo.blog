@@ -3,7 +3,7 @@ title = "Interview"
 date = "2024-03-07"
 draft = false
 pinned = false
-image = "screenshot-2024-03-07-141621.png"
+image = "image.jpeg"
 description = ""
 footnotes = "Quellen: Augenschein vor Ort, persönliches Gespräch mit Wilhelm Haas, Webseite von Zwischenwelt"
 +++
