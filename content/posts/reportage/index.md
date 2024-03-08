@@ -5,4 +5,4 @@ draft = false
 pinned = false
 image = "20240302_153553-1.jpg"
 +++
-**Wicca bewegt - ein Mysterium voller Magie**
+**Wicca bewegt - ein Mysterium durchwoben von zauberhafter Magie**
