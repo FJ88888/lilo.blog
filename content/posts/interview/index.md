@@ -1,5 +1,5 @@
 +++
-title = "Interview"
+title = "Interview mit Wilhelm Haas über die Wicca Bewegung"
 date = "2024-03-07"
 draft = false
 pinned = false
