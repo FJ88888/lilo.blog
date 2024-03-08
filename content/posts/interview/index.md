@@ -76,7 +76,7 @@ Kennst du auch Anhänger anderer mythologischen Lehren, z.B. Neohellenismus, Kem
 **Ich kenne hellenistisch-arbeitende Kollegen in Deutschland, aber nur über das Internet. Ich habe immer wieder Schülerinnen und Schüler, die sich für die griechische Mythologie interessieren. Das war auch die erste, mit der ich mich beschäftigt habe.**
 
 Also, ist das auch hier individuell geprägt?\
-**Genau, wo irgendwo ein Mythos auf dich wirkt. Ich sage es mal so: «Man spürts». Meine erste Begegnung mit den Kelten war: «Aaah, wow, da gibt es noch etwas!». In der Schule habe ich nichts darüber gelernt.**
+**Genau, wie irgendwo, wo ein Mythos auf dich wirkt. Ich sage es mal so: «Man spürts». Meine erste Begegnung mit den Kelten war: «Aaah, wow, da gibt es noch etwas!». In der Schule habe ich nichts darüber gelernt.**
 
 Wie unterscheidet sich der Wicca-Kult hauptsächlich von den abrahamitischen Weltreligionen?\
 **Dadurch, dass es vor allem keine Zentralstelle gibt, die dir vorschreibt, was du zu tun hast. Dann eben, dass Wiccas mit dem Götterbild arbeiten, von dem sie sich angesprochen fühlen. Also, wir haben keine Gottheit, die zentral oben steht. Vor allem aber, dass dem Weiblichen in Wicca einer grosser, ursprünglich sogar einem grösseren Wert zugesprochen wurde als dem Männlichem. Das heisst, die Göttin war immer ein Faktor in Wicca. Das Weiblich-Göttliche findet man in abrahamitischen Religionen nicht mehr so.**                                  
