@@ -55,7 +55,7 @@ Was ist der tiefere Sinn des Namens deines Ladens «Zwischenwelt»?\
 
 Was sind Wiccas genau und womit beschäftigen sie sich in Bezug auf Traditionen, Gemeinschaft und Rituale?\
 **Ja, das ist ein bisschen eine schwierige Frage, die ich nicht so einfach beantworten kann, weil sich Wicca extrem verändert hat, seitdem ich damit begonnen habe. Wicca war am Anfang eine initiatorische Tradition, bei der wirklich nur von Zirkel zu Zirkel zu Zirkel gegangen wurde. In den 70er und 80er Jahren begann die Veränderung unter anderem durch diverse Publikationen und die Feministenbewegung. Heute bei den jungen Leuten, den sogenannten «Tiktok-Witches» wird Wicca eher etwas herunter gemacht, weil es angeblich dogmatisch sei.\
-Ich würde sagen, der Grundstein ist eigentlich die Verbindung mit dem Göttlichen herzustellen. Die Form dafür ist sehr individuell. Rein theoretisch sollte man immer noch, wenn man sich Wicca nennt, gleichwohl verschiedene Zonen durchlaufen und sei es nur, dass man sich selbst initiiert, sich selber findet in sich.**
+Ich würde sagen, der Grundstein ist eigentlich, die Verbindung mit dem Göttlichen herzustellen. Die Form dafür ist sehr individuell. Rein theoretisch sollte man immer noch, wenn man sich Wicca nennt, gleichwohl verschiedene Zonen durchlaufen und sei es nur, dass man sich selbst initiiert, sich selber findet in sich.**
 
 Also, ist das Wiccatum ohne eine gewisse Hierarchie?\
 **Die gibt es innerhalb von Coven. In einem traditionellen Coven gibt es Hohepriesterinnen und Hohenpriester als Leiter. Es gibt aber auch Coven die unhierarchisch arbeiten.**
