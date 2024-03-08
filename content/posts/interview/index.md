@@ -102,7 +102,7 @@ Reist du gerne an Orte, wo Kräfte herrschen, wie Stonehenge oder Gise?\
 **Ich würde sehr gerne reisen, aber seit ich meinen Laden habe, komme ich nicht mehr so oft dazu. Ich habe Familie in England und war bei einem Besuch auch im Nottingham Forest. Der hat eine extreme Energie. Unsere Avalonreise haben wir verschieben müssen, wegen Corona. Sehr gerne reise ich auch in der Schweiz. Gerade im Alpenraum hat es viele Kraftorte. Es ist nicht nötig, immer in die Ferne zu reisen, um heilige Orte aufzusuchen. Es gibt hier genug heilige Orte, wir müssen diese nur entdecken und würdigen.**
 
 Haben Wiccas Einfluss auf das Geschehen in ihrer Umgebung? Sind sie in der Lage Energien zu kanalisieren?\
-**Wenn man im magischen Bereich arbeitet, dann lernt man Energien zu leiten, zu fokussieren oder in die richtige Richtung zu senden. Ich finde, das ist nicht unbedingt wicca-abhängig, das kann jeder Mensch, der sich damit beschäftigt machen.**
+**Wenn man im magischen Bereich arbeitet, dann lernt man Energien zu leiten, zu fokussieren oder in die richtige Richtung zu senden. Ich finde, das ist nicht unbedingt wicca-abhängig, das kann jeder Mensch machen, der sich damit beschäftigt.**
 
 Also jeder Einzelne kann dazu beitragen?\
 **Absolut ja. Aber der Einfluss auf die Welt ist immer ein bisschen schwierig. Als junger Idealist habe ich mir gedacht, ich könnte die Welt ein bisschen verändern, wenn man Leute zum Nachdenken anregt, heute sage ich mir, nein, das geht nicht, aber ich kann ein Vorbild sein.**
