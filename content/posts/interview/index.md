@@ -79,7 +79,7 @@ Also, ist das auch hier individuell geprägt?\
 **Genau, wie irgendwo, wo ein Mythos auf dich wirkt. Ich sage es mal so: «Man spürts». Meine erste Begegnung mit den Kelten war: «Aaah, wow, da gibt es noch etwas!». In der Schule habe ich nichts darüber gelernt.**
 
 Wie unterscheidet sich der Wicca-Kult hauptsächlich von den abrahamitischen Weltreligionen?\
-**Dadurch, dass es vor allem keine Zentralstelle gibt, die dir vorschreibt, was du zu tun hast. Dann eben, dass Wiccas mit dem Götterbild arbeiten, von dem sie sich angesprochen fühlen. Also, wir haben keine Gottheit, die zentral oben steht. Dem Weiblichen wird in Wicca einer grosser, ursprünglich sogar ein grösserer Wert als dem Männlichen zugesprochen. Das heisst, die Göttin war immer ein Faktor in Wicca. Das Weiblich-Göttliche findet man in abrahamitischen Religionen nicht mehr so.**                                  
+**Dadurch, dass es vor allem keine Zentralstelle gibt, die dir vorschreibt, was du zu tun hast. Dann eben, dass Wiccas mit dem Götterbild arbeiten, von dem sie sich angesprochen fühlen. Also, wir haben keine Gottheit, die zentral oben steht. Dem Weiblichen wird in Wicca ein grosser, ursprünglich sogar ein grösserer Wert als dem Männlichen zugesprochen. Das heisst, die Göttin war immer ein Faktor in Wicca. Das Weiblich-Göttliche findet man in abrahamitischen Religionen nicht mehr so.**                                  
 
  *\    Wir beten unsere Götter nicht an. Sie sind von uns ein Teil in der Welt,* \
  *\    sind auch ein Teil von uns selber und gleichwohl erfahrbar in anderen Realitäten.*
