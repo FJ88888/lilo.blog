@@ -24,7 +24,7 @@ Wie lange führst du deinen Laden bereits?\
 (https://www.zwischenwelt.ch/)
 
 Hat sich im Verlauf der Jahre die Art und Anzahl der Kundschaft verändert?\
-**Ich würde sage, es hält sich im Gleichgewicht. Es hängt davon ab, was spirituell gerade «in» ist. Zu Beginn haben sich mehr Leute für Wicca interessiert, da war gerade ein Boom durch die TV-Serie «Charmed» und die Bücher von «Harry Potter». Ich habe aber eine sehr durchmischte Kundschaft.**
+**Ich würde sagen, es hält sich im Gleichgewicht. Es hängt davon ab, was spirituell gerade «in» ist. Zu Beginn haben sich mehr Leute für Wicca interessiert, da war gerade ein Boom durch die TV-Serie «Charmed» und die Bücher von «Harry Potter». Ich habe aber eine sehr durchmischte Kundschaft.**
 
 Kommen auch Mythologen oder Mythologie-Interessierte vorbei?\
 **Es kommen Personen vorbei, die sich für Mythologie interessieren. Ob Mythologen dabei sind, weiss ich nicht, weisst du, die würden mir das nicht sagen (lacht).**
