@@ -7,8 +7,4 @@ image = "20240302_153553-1.jpg"
 +++
 **Wicca bewegt - ein Mysterium durchwoben von zauberhafter Magie**
 
-
-
-
-
 ![](gottin.jpg)
