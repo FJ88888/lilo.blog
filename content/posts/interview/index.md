@@ -4,7 +4,7 @@ date = "2024-03-07"
 draft = true
 pinned = false
 tags = []
-image = "20240302_160654.jpg"
+image = "20240302_160652.jpg"
 description = "Interview mit Wilhelm Haas, einem Wicca-Priester"
 +++
 **Von Magie und Gottheiten** 
