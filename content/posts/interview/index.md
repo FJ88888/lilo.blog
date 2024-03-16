@@ -18,28 +18,10 @@ footnotes = "Fotos Ferris Jost\\\nAugenschein vor Ort\\\nPersönliches Gespräch
 \
 Ich treffe Wilhelm Haas in seinem Laden «Zwischenwelt» in Luzern. Ein Sammelsurium von spirituellen Symbolen, Runen, Bücher und Räucherwerken umgibt uns. Es riecht nach Räucherstäbchen.
 
-<!--StartFragment-->
-
-{{<<!--StartFragment-->
-
 Tauchen Sie ein in die Welt der modernen Hexen: Eine Reise durch die keltische Mythologie, die Verehrung der Götter und die geheimnisvolle Zwischenwelt"
-
-<!--EndFragment-->>}}
-
-<!--EndFragment-->
 
 **Wilhelm, hast du heute schon Magie gewebt?**\
 Das ist die erste Frage, die ich gesehen habe – bewusst Magie gewebt heute nicht, unbewusst weben wir alle zwischendurch Magie**.**
-
-<!--StartFragment-->
-
-{{<box>}}\
-<>**Wilhelm Haas, 58-jährig, geboren im katholischen Wien, betreibt seit 2001 seinen Hexenladen «Zwischenwelt» in Luzern. Er ist eine Hexe und Wicca-Priester.**\
-{{</box>}}
-
-<!--EndFragment-->
-
-<!--EndFragment-->\
 
 **Wie lange führst du deinen Laden bereits?**\
 Seit 2001. {{<https://www.zwischenwelt.ch/>}}\
@@ -133,3 +115,9 @@ Wir opfern oft Blumen, Trankopfer sowie Speiseopfer oder wir spenden als Opfer a
 
 **Viele Menschen assoziieren Hexerei mit Katzen. Hast du eine Katze?**\
 Leider nicht mehr. Ja, ich hatte Katzen und ich liebe Katzen. Die Letzte ist vor zwei Jahren ins Sommerland gezogen. Alle meine Katzen sind aber sehr alt geworden. Also, ich liebe auch Hunde und Meerschweinchen, aber Katzen haben tatsächlich einen anderen Zugang zur Anderswelt. Wenn ich Besuch aus anderen Welten hatte oder etwas Magisches gearbeitet habe, das ist jetzt wieder ein Klischee, Luna, eine schwarze Katze, die hat das gespürt. Die war drei Zimmer weiter und ich habe begonnen in meinem Raum zu visualisieren, Elemente begrüsst, die ist aufgesprungen, kam rein, hat sich hingesetzt und mir zugeschaut. Wenn ich einen schlechten Traum hatte oder von einer unfreiwilligen Ermessensreise zurückgekommen bin und etwas mitgenommen haben, die Katzen habe das gesehen. Alle drei waren auf dem Bett und haben hingestarrt. Katzen haben einen anderen Draht. Hunde übrigens auch, dass wird oft unterschätzt, aber Hunde drücken es wahrscheinlich anders aus.
+
+
+
+{{<box>}}\
+<>**Wilhelm Haas, 58-jährig, geboren im katholischen Wien, betreibt seit 2001 seinen Hexenladen «Zwischenwelt» in Luzern. Er ist eine Hexe und Wicca-Priester.**\
+{{</box>}}
