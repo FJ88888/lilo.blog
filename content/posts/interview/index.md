@@ -24,7 +24,7 @@ Tauchen Sie ein in die Welt der modernen Hexen: Eine Reise durch die keltische M
 Das ist die erste Frage, die ich gesehen habe – bewusst Magie gewebt heute nicht, unbewusst weben wir alle zwischendurch Magie**.**
 
 **Wie lange führst du deinen Laden bereits?**\
-Seit 2001. {{<https://www.zwischenwelt.ch/>}}\
+Seit 2001. <https://www.zwischenwelt.ch/>\
 
 **Hat sich im Verlauf der Jahre die Art und Anzahl der Kundschaft verändert?**\
 Ich würde sage, es hält sich im Gleichgewicht. Es hängt davon ab, was spirituell gerade «in» ist. Zu Beginn haben sich mehr Leute für Wicca interessiert, da war gerade ein Boom durch die TV-Serie «Charmed» und die Bücher von «Harry Potter». Ich habe aber eine sehr durchmischte Kundschaft.\
@@ -48,7 +48,7 @@ Der hat mir nie zugesagt. Ich hatte schon in der Schule Probleme, weil ich immer
 **Und wie reagieren die Leute in deinem Umfeld auf deine Lebensweise?**\
 Ja, gut. Ich bin privat so, wie ich bin. Ich renne natürlich nicht herum mit einer Fahne, wo draufsteht «ich bin eine Hexe und alles ist Magie». Für die bin ich einfach der Willi. Es ist klar, manchmal fragen sie mich um Rat oder ob ich ihnen eine Kerze oder eine Flasche Ritualwein mache. Ich habe viele atheistische Kollegen. Die haben auch kein Problem damit. Schliesslich wissen sie, dass ich mich schon immer dafür interessiert habe.\
 \
-<<**In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre**>>
+**In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre**
 
 **Was ist der tiefere Sinn des Namens deines Ladens «Zwischenwelt»?**\
 Ah, das ist eine coole Frage. In letzter Zeit kommen immer wieder Leute zu mir, die das Gefühl haben, es habe etwas mit dem Fegefeuer zutun. Das stimmt nicht. Der Gedanke, den ich mir gemacht habe ist, dass wir als Wicca einen heiligen Raum schaffen. In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre. Dazu sagen wir «es ist ein Raum, der sich zwischen den Welten befindet». Du bist im einen in der Realität, aber du schaffst quasi wie einen heiligen Raum, wo du den Übertritt in andere Bewusstseinszustände oder in eine Anderswelt machst. Für mich ist diese Sphäre die Zwischenwelt. Deshalb habe ich den Laden auch so genannt.
@@ -60,7 +60,7 @@ Ich würde sagen, der Grundstein ist eigentlich die Verbindung mit dem Göttlich
 Also, ist das Wiccatum ohne eine gewisse Hierarchie?**\
 Die gibt es innerhalb von Coven. In einem traditionellen Coven gibt es Hohenpriesterinnen und Hohenpriester als Leiter. Es gibt aber auch Coven die unhierarchisch arbeiten.\
 \
-<<**Ich finde, dass seit Corona die Leute ein bisschen abergläubischer geworden sind**>>
+**Ich finde, dass seit Corona die Leute ein bisschen abergläubischer geworden sind**
 
 **Bemerkst du gesellschaftliche Veränderungen in der Wahrnehmung der Wiccas speziell in der Schweiz?**\
 Ich finde, dass seit Corona die Leute ein bisschen abergläubischer geworden sind. Als ich meinen Laden aufgemacht habe, wollte ich zeigen, dass Hexentum ein progressiver Weg ist, wo man an sich arbeitet, und das klingt wohl kitschig, aber versucht ein besserer Mensch zu werden. Schwarz-weiss Denken, schwarze Magie, weisse Magie, Gut und Böse, dass das meines Erachtens nicht stimmt. Aber seit ein paar Jahren beginnen generell Leute, nicht nur Wiccas, wieder mit diesen Meinungen «das ist falsch», «das ist gut», das ist «böse» und sie vergessen immer mehr die Grautöne zwischendurch und die Farben. Aber das ist eine gesellschaftliche Veränderung und betrifft nicht nur die Wiccas.\
@@ -83,7 +83,7 @@ Genau, wo irgendwo ein Mythos auf dich wirkt. Ich sage es mal so: «man spürts�
 **Wie unterscheidet sich der Wicca-Kult hauptsächlich von den abrahamitischen Weltreligionen?**\
 Dadurch, dass es vor allem keine Zentralstelle gibt, die dir vorschreibt, was du zu tun hast. Dann eben, dass Wiccas mit dem Götterbild arbeiten, von dem sie sich angesprochen fühlen. Also, wir haben keine Gottheit, die zentral oben steht. Vor allem aber, dass dem Weiblichen in Wicca einer grosser, ursprünglich sogar einem grösseren Wert zugesprochen wurde als dem Männlichem. Das heisst, die Göttin war immer ein Faktor in Wicca. Das weiblich-göttliche findet man in abrahamitischen Religionen nicht mehr so.\
 \
-**<<Wir beten unsere Götter nicht an>>**
+**Wir beten unsere Götter nicht an**
 
 **Also kann man sagen, dass jede Wicca ihre Lieblingsgottheit hat?**\
 Ich würde nicht sagen Lieblingsgottheit, das klingt so, als würde man einen Star anhimmeln. Wir beten unsere Götter nicht an, nicht so wie im Katholizismus. Sie sind von uns ein Teil in der Welt, sind auch ein Teil von uns selber und gleichwohl erfahrbar in anderen Realitäten.
@@ -94,7 +94,7 @@ Ja, das ist ein Klischee. Es gibt viele Leute, die mit nordischen oder keltische
 **Braucht es ein Aufnahmeritual um Wicca zu werden?**\
 Die Frage ist, ob du einem Coven beitreten möchtest, respektiv in einem Zirkel eine Ausbildung machst. Dann bist du eine Zeit lang dabei und wenn die anderen das Gefühl haben, dass passt, dann durchläufst du ein Aufnahmeritual. Dann hast du die erste Initiation und gehst den offiziellen Weg und dort drin kannst du bis zur Priesterschaft aufsteigen.\
 \
-<<**Kraftorte findet man überall, sogar in der Stadt, dass vergessen viele**>>
+**Kraftorte findet man überall, sogar in der Stadt, dass vergessen viele**
 
 **Welche Bedeutung haben Wälder für dich? Gibt es dort spezielle Kraftorte?**\
 Kraftorte finde man überall, sogar in der Stadt, dass vergessen viele. Auch Kirchen sind oft an Kraftorten gebaut. Ich spüre wie es vibriert. Aber die freie Natur ist absolut unschlagbar. Draussen den Kontakt zu knüpfen, sich wieder zu besinnen, den Ursprung des Lebens, das Göttlich eben, das ist schon etwas Besonderes. Gewisse Orte pulsieren. Der Pilatus zum Beispiel ist ein heiliger Ort, der hat besonders starke maskuline Energie. Die Rigi, wenn ich dort rauf gehe, spüre ich die eher weichere, femininere Energie.\
@@ -114,7 +114,7 @@ Ich denke, viele Menschen kommen nicht mehr damit zurecht, was gesetzmässig gep
 
 **Das ist faszinierend, wenn man bedenkt, dass diese Religion, die Vorläufer oder Inspirationen, die bei heutigen Bewegungen wie den Wiccas beispielsweise, auf so alte Religionen und Traditionen zurückgehen.** Wicca ist eine moderne Religion, die einen eklektischen Pfad geht. Da wurde Ritualistik aus der rohen Magie, aus der Zeremonialmagie übernommen und abgeändert. Es ist ein Mischmasch aus alten und okkulten Religionen. Es geht um den Versuch die Naturspiritualität mehr zu integrieren, aber auch den Schamanismus und die Hexenzirkel.\
 \
-<<**Grundsätzlich lieben Heiden die Natur, die Tiere**>>
+**Grundsätzlich lieben Heiden die Natur, die Tiere**
 
 **In Gesprächen mit Menschen in meinem Umfeld wird dem Thema Paganismus mit Vorurteilen, wie Blutopfer oder Hexerei, begegnet. Wie kann man dazu beitragen diese Vorurteile zu entkräften?**\
 Menschen, die Vorurteile haben, sind oft streng religiös. Sie werden die Sachen immer verteufeln, weil sie es so gelernt haben und weil sie alles was nicht mit Gott zu tun hat, aufgrund der kirchlichen Lehre automatisch nicht gut finden. Pagans (Heiden, Anmerkung Redaktion) sind alle nicht gottgläubigen, im christlichen Sinne, also für Katholiken sind sogar Hindus Pagans, weil es nicht dem christlichen Glauben entspricht.\
@@ -124,4 +124,4 @@ Wir opfern oft Blumen, Trankopfer sowie Speiseopfer oder wir spenden als Opfer a
 Leider nicht mehr. Ja, ich hatte Katzen und ich liebe Katzen. Die Letzte ist vor zwei Jahren ins Sommerland gezogen. Alle meine Katzen sind aber sehr alt geworden. Also, ich liebe auch Hunde und Meerschweinchen, aber Katzen haben tatsächlich einen anderen Zugang zur Anderswelt. Wenn ich Besuch aus anderen Welten hatte oder etwas Magisches gearbeitet habe, das ist jetzt wieder ein Klischee, Luna, eine schwarze Katze, die hat das gespürt. Die war drei Zimmer weiter und ich habe begonnen in meinem Raum zu visualisieren, Elemente begrüsst, die ist aufgesprungen, kam rein, hat sich hingesetzt und mir zugeschaut. Wenn ich einen schlechten Traum hatte oder von einer unfreiwilligen Ermessensreise zurückgekommen bin und etwas mitgenommen haben, die Katzen habe das gesehen. Alle drei waren auf dem Bett und haben hingestarrt. Katzen haben einen anderen Draht. Hunde übrigens auch, dass wird oft unterschätzt, aber Hunde drücken es wahrscheinlich anders aus.
 
 
-<>**Wilhelm Haas, 58-jährig, geboren im katholischen Wien, betreibt seit 2001 seinen Hexenladen «Zwischenwelt» in Luzern. Er ist eine Hexe und Wicca-Priester.**\
+**Wilhelm Haas, 58-jährig, geboren im katholischen Wien, betreibt seit 2001 seinen Hexenladen «Zwischenwelt» in Luzern. Er ist eine Hexe und Wicca-Priester.**\
