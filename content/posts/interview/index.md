@@ -6,7 +6,7 @@ pinned = false
 tags = []
 image = "wilhelmii.jpg"
 description = "Interview mit Wilhelm Haas, einem Wicca-Priester"
-footnotes = "* Fotos Ferris Jost\n* Augenschein vor Ort\n* Persönliches Gespräch mit Wilhelm Haas\n* Website von Zwischenwelt {{<https://www.zwischenwelt.ch/>}}"
+footnotes = "Fotos Ferris Jost\\\nAugenschein vor Ort\\\nPersönliches Gespräch mit Wilhelm Haas\\\nWebsite von Zwischenwelt {{<https://www.zwischenwelt.ch/>}}"
 +++
 ![Wilhelm Haas in seinem Laden in Luzern.](willhelm.jpg)
 
