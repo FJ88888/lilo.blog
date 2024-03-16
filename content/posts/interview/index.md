@@ -6,6 +6,7 @@ pinned = false
 tags = []
 image = "wilhelmii.jpg"
 description = "Interview mit Wilhelm Haas, einem Wicca-Priester"
+footnotes = "* Fotos Ferris Jost\n* Augenschein vor Ort\n* Persönliches Gespräch mit Wilhelm Haas\n* Website von Zwischenwelt {{<https://www.zwischenwelt.ch/>}}"
 +++
 ![Wilhelm Haas in seinem Laden in Luzern.](willhelm.jpg)
 
@@ -41,7 +42,7 @@ Das ist die erste Frage, die ich gesehen habe – bewusst Magie gewebt heute nic
 <!--EndFragment-->\
 
 **Wie lange führst du deinen Laden bereits?**\
-Seit 2001. https://www.zwischenwelt.ch/
+Seit 2001. {{<https://www.zwischenwelt.ch/>}}\
 
 **Hat sich im Verlauf der Jahre die Art und Anzahl der Kundschaft verändert?**\
 Ich würde sage, es hält sich im Gleichgewicht. Es hängt davon ab, was spirituell gerade «in» ist. Zu Beginn haben sich mehr Leute für Wicca interessiert, da war gerade ein Boom durch die TV-Serie «Charmed» und die Bücher von «Harry Potter». Ich habe aber eine sehr durchmischte Kundschaft.\
