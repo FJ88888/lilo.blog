@@ -12,7 +12,8 @@ footnotes = "Fotos Ferris Jost\\\nAugenschein vor Ort\\\nPersönliches Gespräch
 
 # **Im Bannkreis der Magie**
 
-### Tauchen Sie ein in die Welt der modernen Hexen: Eine Reise durch die keltische Mythologie, die Verehrung der Götter und die geheimnisvolle Zwischenwelt".\
+### Tauchen Sie ein in die Welt der modernen Hexen: Eine Reise durch die keltische Mythologie, die Verehrung der Götter und die geheimnisvolle Zwischenwelt".
+
 \
 **Im Gespräch mit Wilhelm Haas über moderne Hexen, Kelten, Götter und die Zwischenwelt.** 
 
