@@ -21,7 +21,7 @@ Ich treffe Wilhelm Haas in seinem Laden «Zwischenwelt» in Luzern. Ein Sammelsu
 Tauchen Sie ein in die Welt der modernen Hexen: Eine Reise durch die keltische Mythologie, die Verehrung der Götter und die geheimnisvolle Zwischenwelt"
 
 **Wilhelm, hast du heute schon Magie gewebt?**\
-Das ist die erste Frage, die ich gesehen habe – bewusst Magie gewebt heute nicht, unbewusst weben wir alle zwischendurch Magie**.**
+Das ist die erste Frage, die ich gesehen habe – bewusst Magie gewebt heute nicht, unbewusst weben wir alle zwischendurch Magie**
 
 **Wie lange führst du deinen Laden bereits?**\
 Seit 2001. <https://www.zwischenwelt.ch/>\
