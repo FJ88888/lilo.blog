@@ -1,7 +1,7 @@
 +++
 title = "Interview"
-date = "2024-03-07"
-draft = true
+date = "2024-03-16"
+draft = false
 pinned = false
 tags = []
 image = "20240302_160652.jpg"
