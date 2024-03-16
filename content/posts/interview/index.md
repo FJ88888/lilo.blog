@@ -60,7 +60,7 @@ Ich würde sagen, der Grundstein ist eigentlich die Verbindung mit dem Göttlich
 Also, ist das Wiccatum ohne eine gewisse Hierarchie?**\
 Die gibt es innerhalb von Coven. In einem traditionellen Coven gibt es Hohenpriesterinnen und Hohenpriester als Leiter. Es gibt aber auch Coven die unhierarchisch arbeiten.\
 \
-"Ich finde, dass seit Corona die Leute ein bisschen abergläubischer geworden sind"
+<<"Ich finde, dass seit Corona die Leute ein bisschen abergläubischer geworden sind">>
 
 **Bemerkst du gesellschaftliche Veränderungen in der Wahrnehmung der Wiccas speziell in der Schweiz?**\
 Ich finde, dass seit Corona die Leute ein bisschen abergläubischer geworden sind. Als ich meinen Laden aufgemacht habe, wollte ich zeigen, dass Hexentum ein progressiver Weg ist, wo man an sich arbeitet, und das klingt wohl kitschig, aber versucht ein besserer Mensch zu werden. Schwarz-weiss Denken, schwarze Magie, weisse Magie, Gut und Böse, dass das meines Erachtens nicht stimmt. Aber seit ein paar Jahren beginnen generell Leute, nicht nur Wiccas, wieder mit diesen Meinungen «das ist falsch», «das ist gut», das ist «böse» und sie vergessen immer mehr die Grautöne zwischendurch und die Farben. Aber das ist eine gesellschaftliche Veränderung und betrifft nicht nur die Wiccas.\
