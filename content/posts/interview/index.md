@@ -33,9 +33,9 @@ Das ist die erste Frage, die ich gesehen habe – bewusst Magie gewebt heute nic
 
 <!--StartFragment-->
 
+{{<box>}}\
+<>**Wilhelm Haas, 58-jährig, geboren im katholischen Wien, betreibt seit 2001 seinen Hexenladen «Zwischenwelt» in Luzern. Er ist eine Hexe und Wicca-Priester.**\
 {{</box>}}
-
-<>**Wilhelm Haas, 58-jährig, geboren im katholischen Wien, betreibt seit 2001 seinen Hexenladen «Zwischenwelt» in Luzern. Er ist eine Hexe und Wicca-Priester.**
 
 <!--EndFragment-->
 
