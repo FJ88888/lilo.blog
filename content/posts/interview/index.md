@@ -7,7 +7,7 @@ tags = []
 image = "wilhelmii.jpg"
 description = "Interview mit Wilhelm Haas, einem Wicca-Priester"
 +++
-![Wilhelm Haas in seinem Laden in Luzern](willhelm.jpg)
+![Wilhelm Haas in seinem Laden in Luzern.](willhelm.jpg)
 
 # **Im Bannkreis der Magie**
 
