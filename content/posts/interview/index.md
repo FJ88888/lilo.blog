@@ -46,7 +46,9 @@ Der strikte Monotheismus?** \
 Der hat mir nie zugesagt. Ich hatte schon in der Schule Probleme, weil ich immer gefragt habe, wieso Gott eigentlich unbedingt ein Mann sein muss. Als ich bei Wicca eingestiegen bin, kam da ein kleiner Revoluzzer Trieb zum Vorschein, wo ich dachte, die Kirche ist schlecht. Aber mit der Zeit habe ich gelernt, dass auch bei der Kirche nicht alles schlecht ist. Ich sage mal so, es gibt Leute, die «schlecht» sind. Auf der anderen Seite wurde ich an Universitäten eingeladen und habe vor Theologen und Studenten Vorträge gehalten. Es sind eher die Freikirchen, die fanatisch sind.
 
 **Und wie reagieren die Leute in deinem Umfeld auf deine Lebensweise?**\
-Ja, gut. Ich bin privat so, wie ich bin. Ich renne natürlich nicht herum mit einer Fahne, wo draufsteht «ich bin eine Hexe und alles ist Magie». Für die bin ich einfach der Willi. Es ist klar, manchmal fragen sie mich um Rat oder ob ich ihnen eine Kerze oder eine Flasche Ritualwein mache. Ich habe viele atheistische Kollegen. Die haben auch kein Problem damit. Schliesslich wissen sie, dass ich mich schon immer dafür interessiert habe.
+Ja, gut. Ich bin privat so, wie ich bin. Ich renne natürlich nicht herum mit einer Fahne, wo draufsteht «ich bin eine Hexe und alles ist Magie». Für die bin ich einfach der Willi. Es ist klar, manchmal fragen sie mich um Rat oder ob ich ihnen eine Kerze oder eine Flasche Ritualwein mache. Ich habe viele atheistische Kollegen. Die haben auch kein Problem damit. Schliesslich wissen sie, dass ich mich schon immer dafür interessiert habe.\
+\
+<<**In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre**>>
 
 **Was ist der tiefere Sinn des Namens deines Ladens «Zwischenwelt»?**\
 Ah, das ist eine coole Frage. In letzter Zeit kommen immer wieder Leute zu mir, die das Gefühl haben, es habe etwas mit dem Fegefeuer zutun. Das stimmt nicht. Der Gedanke, den ich mir gemacht habe ist, dass wir als Wicca einen heiligen Raum schaffen. In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre. Dazu sagen wir «es ist ein Raum, der sich zwischen den Welten befindet». Du bist im einen in der Realität, aber du schaffst quasi wie einen heiligen Raum, wo du den Übertritt in andere Bewusstseinszustände oder in eine Anderswelt machst. Für mich ist diese Sphäre die Zwischenwelt. Deshalb habe ich den Laden auch so genannt.
@@ -56,7 +58,9 @@ Ja, das ist ein bisschen eine schwierige Frage, die ich nicht so einfach beantwo
 Ich würde sagen, der Grundstein ist eigentlich die Verbindung mit dem Göttlichen herzustellen. Die Form dafür ist sehr individuell. Rein theoretisch sollte man immer noch, wenn man sich Wicca nennt, gleichwohl verschiede Zonen durchlaufen und sei es nur, dass man sich selbst initiiert, sich selber findet in sich.\
 **\
 Also, ist das Wiccatum ohne eine gewisse Hierarchie?**\
-Die gibt es innerhalb von Coven. In einem traditionellen Coven gibt es Hohenpriesterinnen und Hohenpriester als Leiter. Es gibt aber auch Coven die unhierarchisch arbeiten.
+Die gibt es innerhalb von Coven. In einem traditionellen Coven gibt es Hohenpriesterinnen und Hohenpriester als Leiter. Es gibt aber auch Coven die unhierarchisch arbeiten.\
+\
+<<**Ich finde, dass seit Corona die Leute ein bisschen abergläubischer geworden sind**>>
 
 **Bemerkst du gesellschaftliche Veränderungen in der Wahrnehmung der Wiccas speziell in der Schweiz?**\
 Ich finde, dass seit Corona die Leute ein bisschen abergläubischer geworden sind. Als ich meinen Laden aufgemacht habe, wollte ich zeigen, dass Hexentum ein progressiver Weg ist, wo man an sich arbeitet, und das klingt wohl kitschig, aber versucht ein besserer Mensch zu werden. Schwarz-weiss Denken, schwarze Magie, weisse Magie, Gut und Böse, dass das meines Erachtens nicht stimmt. Aber seit ein paar Jahren beginnen generell Leute, nicht nur Wiccas, wieder mit diesen Meinungen «das ist falsch», «das ist gut», das ist «böse» und sie vergessen immer mehr die Grautöne zwischendurch und die Farben. Aber das ist eine gesellschaftliche Veränderung und betrifft nicht nur die Wiccas.\
