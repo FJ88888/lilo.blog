@@ -12,13 +12,13 @@ footnotes = "Fotos Ferris Jost\\\nAugenschein vor Ort\\\nPersönliches Gespräch
 
 # **Im Bannkreis der Magie**
 
-## **Gespräch mit Wilhelm Haas über moderne Hexen, Kelten, Götter und die Zwischenwelt.**
+### Tauchen Sie ein in die Welt der modernen Hexen: Eine Reise durch die keltische Mythologie, die Verehrung der Götter und die geheimnisvolle Zwischenwelt".\
+\
+**Im Gespräch mit Wilhelm Haas über moderne Hexen, Kelten, Götter und die Zwischenwelt.** 
 
-**Wilhelm Haas ist eine bekennende Hexe. Er hat mir erzählt, wie er seinen Weg in die Wicca-Bewegung gefunden hat und was Magie im 21. Jahrhundert für ihn bedeutet.**\
+**Wilhelm Haas ist eine bekennende Hexe. Er hat mir erzählt, wie er seinen Weg in die Wicca-Bewegung gefunden hat und was Magie im 21. Jahrhundert für ihn bedeutet.** \
 \
 Ich treffe Wilhelm Haas in seinem Laden «Zwischenwelt» in Luzern. Ein Sammelsurium von spirituellen Symbolen, Runen, Bücher und Räucherwerken umgibt uns. Es riecht nach Räucherstäbchen.
-
-Tauchen Sie ein in die Welt der modernen Hexen: Eine Reise durch die keltische Mythologie, die Verehrung der Götter und die geheimnisvolle Zwischenwelt".
 
 **Wilhelm, hast du heute schon Magie gewebt?**\
 Das ist die erste Frage, die ich gesehen habe – bewusst Magie gewebt heute nicht, unbewusst weben wir alle zwischendurch Magie.
