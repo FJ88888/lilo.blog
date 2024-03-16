@@ -81,7 +81,9 @@ Ich kenne hellenistisch-arbeitende Kollegen in Deutschland, aber nur über das I
 Genau, wo irgendwo ein Mythos auf dich wirkt. Ich sage es mal so: «man spürts». Meine erste Begegnung mit den Kelten war: «aaah, wow, da gibt es noch etwas!». In der Schule habe ich nichts darüber gelernt.
 
 **Wie unterscheidet sich der Wicca-Kult hauptsächlich von den abrahamitischen Weltreligionen?**\
-Dadurch, dass es vor allem keine Zentralstelle gibt, die dir vorschreibt, was du zu tun hast. Dann eben, dass Wiccas mit dem Götterbild arbeiten, von dem sie sich angesprochen fühlen. Also, wir haben keine Gottheit, die zentral oben steht. Vor allem aber, dass dem Weiblichen in Wicca einer grosser, ursprünglich sogar einem grösseren Wert zugesprochen wurde als dem Männlichem. Das heisst, die Göttin war immer ein Faktor in Wicca. Das weiblich-göttliche findet man in abrahamitischen Religionen nicht mehr so.
+Dadurch, dass es vor allem keine Zentralstelle gibt, die dir vorschreibt, was du zu tun hast. Dann eben, dass Wiccas mit dem Götterbild arbeiten, von dem sie sich angesprochen fühlen. Also, wir haben keine Gottheit, die zentral oben steht. Vor allem aber, dass dem Weiblichen in Wicca einer grosser, ursprünglich sogar einem grösseren Wert zugesprochen wurde als dem Männlichem. Das heisst, die Göttin war immer ein Faktor in Wicca. Das weiblich-göttliche findet man in abrahamitischen Religionen nicht mehr so.\
+\
+**<<Wir beten unsere Götter nicht an>>**
 
 **Also kann man sagen, dass jede Wicca ihre Lieblingsgottheit hat?**\
 Ich würde nicht sagen Lieblingsgottheit, das klingt so, als würde man einen Star anhimmeln. Wir beten unsere Götter nicht an, nicht so wie im Katholizismus. Sie sind von uns ein Teil in der Welt, sind auch ein Teil von uns selber und gleichwohl erfahrbar in anderen Realitäten.
@@ -90,7 +92,9 @@ Ich würde nicht sagen Lieblingsgottheit, das klingt so, als würde man einen St
 Ja, das ist ein Klischee. Es gibt viele Leute, die mit nordischen oder keltischen Symbolen tätowiert sind, ohne damit sie etwas besonderes verknüpfen. Ich hatte letztens eine Handwerkerin unten im Keller gehabt, bei uns im Haus, und sie hat ein Amulett mit Runenpentagramm getragen. Da habe ich sofort reagiert und gesagt, ich kenne dieses Amulett. Dadurch sind wir ins Gespräch gekommen. Sie hat meinen Laden auch gekannt (lacht).
 
 **Braucht es ein Aufnahmeritual um Wicca zu werden?**\
-Die Frage ist, ob du einem Coven beitreten möchtest, respektiv in einem Zirkel eine Ausbildung machst. Dann bist du eine Zeit lang dabei und wenn die anderen das Gefühl haben, dass passt, dann durchläufst du ein Aufnahmeritual. Dann hast du die erste Initiation und gehst den offiziellen Weg und dort drin kannst du bis zur Priesterschaft aufsteigen.
+Die Frage ist, ob du einem Coven beitreten möchtest, respektiv in einem Zirkel eine Ausbildung machst. Dann bist du eine Zeit lang dabei und wenn die anderen das Gefühl haben, dass passt, dann durchläufst du ein Aufnahmeritual. Dann hast du die erste Initiation und gehst den offiziellen Weg und dort drin kannst du bis zur Priesterschaft aufsteigen.\
+\
+<<**Kraftorte findet man überall, sogar in der Stadt, dass vergessen viele**>>
 
 **Welche Bedeutung haben Wälder für dich? Gibt es dort spezielle Kraftorte?**\
 Kraftorte finde man überall, sogar in der Stadt, dass vergessen viele. Auch Kirchen sind oft an Kraftorten gebaut. Ich spüre wie es vibriert. Aber die freie Natur ist absolut unschlagbar. Draussen den Kontakt zu knüpfen, sich wieder zu besinnen, den Ursprung des Lebens, das Göttlich eben, das ist schon etwas Besonderes. Gewisse Orte pulsieren. Der Pilatus zum Beispiel ist ein heiliger Ort, der hat besonders starke maskuline Energie. Die Rigi, wenn ich dort rauf gehe, spüre ich die eher weichere, femininere Energie.\
@@ -108,7 +112,9 @@ Absolut ja. Aber der Einfluss auf die Welt ist immer ein bisschen schwierig. Als
 **Viele Menschen treten aus den traditionellen Kirchen aus und sind auf der Suche nach eigener, ungebundener Spiritualität. Worauf kannst du das zurückführen?** \
 Ich denke, viele Menschen kommen nicht mehr damit zurecht, was gesetzmässig gepredigt oder gemacht wird. Heutzutage lassen sich die Leute keine Vorschriften mehr machen. Sie erkennen auch das frauenfeindliche, die Rolle der Frau sowie die Haltung der Kirche zu Homosexualität. Dies ist nicht mehr zeitgemäss und es entspricht auch nicht dem Natürlichen. Zudem denke ich, dass viele Rituale die Menschen nicht mehr ansprechen.
 
-**Das ist faszinierend, wenn man bedenkt, dass diese Religion, die Vorläufer oder Inspirationen, die bei heutigen Bewegungen wie den Wiccas beispielsweise, auf so alte Religionen und Traditionen zurückgehen.** Wicca ist eine moderne Religion, die einen eklektischen Pfad geht. Da wurde Ritualistik aus der rohen Magie, aus der Zeremonialmagie übernommen und abgeändert. Es ist ein Mischmasch aus alten und okkulten Religionen. Es geht um den Versuch die Naturspiritualität mehr zu integrieren, aber auch den Schamanismus und die Hexenzirkel.
+**Das ist faszinierend, wenn man bedenkt, dass diese Religion, die Vorläufer oder Inspirationen, die bei heutigen Bewegungen wie den Wiccas beispielsweise, auf so alte Religionen und Traditionen zurückgehen.** Wicca ist eine moderne Religion, die einen eklektischen Pfad geht. Da wurde Ritualistik aus der rohen Magie, aus der Zeremonialmagie übernommen und abgeändert. Es ist ein Mischmasch aus alten und okkulten Religionen. Es geht um den Versuch die Naturspiritualität mehr zu integrieren, aber auch den Schamanismus und die Hexenzirkel.\
+\
+<<**Grundsätzlich lieben Heiden die Natur, die Tiere**>>
 
 **In Gesprächen mit Menschen in meinem Umfeld wird dem Thema Paganismus mit Vorurteilen, wie Blutopfer oder Hexerei, begegnet. Wie kann man dazu beitragen diese Vorurteile zu entkräften?**\
 Menschen, die Vorurteile haben, sind oft streng religiös. Sie werden die Sachen immer verteufeln, weil sie es so gelernt haben und weil sie alles was nicht mit Gott zu tun hat, aufgrund der kirchlichen Lehre automatisch nicht gut finden. Pagans (Heiden, Anmerkung Redaktion) sind alle nicht gottgläubigen, im christlichen Sinne, also für Katholiken sind sogar Hindus Pagans, weil es nicht dem christlichen Glauben entspricht.\
