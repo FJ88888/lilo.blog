@@ -125,4 +125,4 @@ Leider nicht mehr. Ja, ich hatte Katzen und ich liebe Katzen. Die Letzte ist vor
 
 **Vielen Dank für deine Zeit.**
 
-**Wilhelm Haas, 58-jährig, geboren im katholischen Wien, betreibt seit 2001 seinen Hexenladen «Zwischenwelt» in Luzern. Er ist eine Hexe und Wicca-Priester.**\
+**Wilhelm Haas, 58-jährig, geboren im katholischen Wien, betreibt seit 2001 seinen Hexenladen «Zwischenwelt» in Luzern. Er ist eine Hexe und Wicca-Priester.**
