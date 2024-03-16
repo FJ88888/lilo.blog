@@ -11,11 +11,7 @@ image = "gottini.jpg"
 
 ![](gottin.jpg)
 
-<!--StartFragment-->
-
 Tauchen Sie ein in die Welt der modernen Hexen: Eine Reise durch die keltische Mythologie, die Verehrung der Götter und die geheimnisvolle Zwischenwelt"
 
 \
 Auch im 21. Jahrhundert wird noch Magie gewebt. Schätzungsweise rund 5000 Hexen leben in der Schweiz. Sie leben ihre Kunst meist im Verborgenen aus. Wilhelm Haas ist Anhänger der Wicca-Religion und betreibt einen Hexenladen in Luzern.
-
-<!--EndFragment-->
