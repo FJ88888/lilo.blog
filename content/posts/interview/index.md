@@ -39,10 +39,6 @@ Das ist die erste Frage, die ich gesehen habe – bewusst Magie gewebt heute nic
 **Wie lange führst du deinen Laden bereits?**\
 Seit 2001. http
 
-![]()
-
-![]()
-
 s://www.zwischenwelt.ch/
 
 **Hat sich im Verlauf der Jahre die Art und Anzahl der Kundschaft verändert?**\
