@@ -9,7 +9,7 @@ image = "gottini.jpg"
 
 ## **Wicca bewegt - ein Mysterium durchwoben von zauberhafter Magie**
 
-![Foto: Ferris Jost](gottin.jpg)
+![Foto: Ferris Jost ](gottin.jpg)
 
 Tauchen Sie ein in die Welt der modernen Hexen: Eine Reise durch die keltische Mythologie, die Verehrung der Götter und die geheimnisvolle Zwischenwelt"\
 \
