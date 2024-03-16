@@ -35,14 +35,12 @@ Es kommen Personen vorbei, die sich für Mythologie interessieren. Ob Mythologen
 Du nennst dich eine progressive Hexe – was darf man darunter verstehen?**\
 Progressiv ist für mich, dass ich nicht mehr zu sehr den Dogmatismen und der Tradition folge, die ich gelernt habe. Ich habe meinen eigenen Weg entwickelt. Bin offen für Technik, Modernes. Ich finde, Hexentum sollte nicht nur wie früher gelebt werden.
 
-\
 **Also, so ein bisschen dieses archaische?** \
 Genau, also dieses archaische ist immer gut, aber wir leben im 21. Jahrhundert. Ich finde Magie und Hexentum ist Kreativität und lebt von der Kreativität der Zeit, in der man lebt.\
 **\
 Wann in deinem Leben hast du begonnen, dich mit dieser Art von Spiritualität auseinanderzusetzen? Gab es einen Auslöser?**\
 Mit 18 Jahren habe ich das Buch «Die Nebel von Avalon» gelesen. Das war für mich der erste Auslöser. Darin kamen eine Göttin und Kelten vor. Das hat mich sofort angesprochen. 1998 habe ich in Amerika gelebt und in einer Talkshow eine Priesterin der Wicca-Bewegung gesehen. Sie hat ihren spirituellen Weg beschrieben und da hat es bei mir «boing, boing» gemacht. Ich wusste, das ist mein Weg, den ich einschlagen möchte. Ich begann mich mit dem Thema auseinanderzusetzen und bin schnell mit Gleichgesinnten in Berührung gekommen. Auch hatte ich das Glück einen Coven (Hexenzirkel, Anmerkung Redaktion) zu finden, wo ich lernen konnte. **\*\***\
-Im Zuge meiner Recherchen habe ich gelesen, dass du im katholischen Wien aufgewachsen bist. Welchen persönlichen Bezug hattest du zur Kirche?\*\*Das sind so Wellenbewegungen. Als Kind wollte ich sogar Priester werden, die Rituale haben mich fasziniert. Weihrauch habe ich geliebt. Meine Eltern haben mich in eine katholische Pfadfinder-Jugendgruppe geschickt und dort hatte man für meine Interessen kein Verständnis. Es wurde behauptet, dass sei alles dämonisch und böse. Da bin ich etwas ins Straucheln gekommen. Ich war sowieso ein bisschen anders, immer schon etwas der Aussenseiter und dann bekam ich «die Offenbarung» in die Hand gedrückt zum Lesen. Das war nicht unbedingt die beste Lektüre. Daraufhin habe ich begonnen mich über die Kirche zu informieren, habe Bücher gelesen über die Entstehungsgeschichte und habe schnell gemerkt, dass mir das nicht zusagt.
-
+Im Zuge meiner Recherchen habe ich gelesen, dass du im katholischen Wien aufgewachsen bist. Welchen persönlichen Bezug hattest du zur Kirche?\*\*Das sind so Wellenbewegungen. Als Kind wollte ich sogar Priester werden, die Rituale haben mich fasziniert. Weihrauch habe ich geliebt. Meine Eltern haben mich in eine katholische Pfadfinder-Jugendgruppe geschickt und dort hatte man für meine Interessen kein Verständnis. Es wurde behauptet, dass sei alles dämonisch und böse. Da bin ich etwas ins Straucheln gekommen. Ich war sowieso ein bisschen anders, immer schon etwas der Aussenseiter und dann bekam ich «die Offenbarung» in die Hand gedrückt zum Lesen. Das war nicht unbedingt die beste Lektüre. Daraufhin habe ich begonnen mich über die Kirche zu informieren, habe Bücher gelesen über die Entstehungsgeschichte und habe schnell gemerkt, dass mir das nicht zusagt.\
 **\
 Der strikte Monotheismus?** \
 Der hat mir nie zugesagt. Ich hatte schon in der Schule Probleme, weil ich immer gefragt habe, wieso Gott eigentlich unbedingt ein Mann sein muss. Als ich bei Wicca eingestiegen bin, kam da ein kleiner Revoluzzer Trieb zum Vorschein, wo ich dachte, die Kirche ist schlecht. Aber mit der Zeit habe ich gelernt, dass auch bei der Kirche nicht alles schlecht ist. Ich sage mal so, es gibt Leute, die «schlecht» sind. Auf der anderen Seite wurde ich an Universitäten eingeladen und habe vor Theologen und Studenten Vorträge gehalten. Es sind eher die Freikirchen, die fanatisch sind.
@@ -98,8 +96,7 @@ Im Wald hat es viele Linien und Ort, wo ich spüre, da tut sich etwas. Und es is
 Ich würde sehr gerne reisen, aber seit ich meinen Laden habe, komme ich nicht mehr so oft raus. Ich habe Familie in England und war bei einem Besuch auch im Nottingham Forest. Der hat eine extreme Energie. Unsere Avalonreise haben wir verschieben müssen, wegen Corona. Sehr gerne reise ich auch in der Schweiz. Gerade im Alpenraum hat es viele Kraftorte. Es ist nicht nötig immer in die Ferne zu reisen, um heilige Orte aufzusuchen. Es gibt hier genug heilige Orte, wir müssen diese nur entdecken und würdigen.
 
 **Haben Wiccas Einfluss auf das Geschehen in ihrer Umgebung? Sind sie in der Lage Energien zu kanalisieren?** \
-Wenn man im magischen Bereich arbeitet, dann lernt man Energien zu leiten, zu fokussieren oder in die richtige Richtung zu senden. Ich finde, das ist nicht unbedingt wicca-abhängig, das kann jeder Mensch, der sich damit beschäftigt machen.
-
+Wenn man im magischen Bereich arbeitet, dann lernt man Energien zu leiten, zu fokussieren oder in die richtige Richtung zu senden. Ich finde, das ist nicht unbedingt wicca-abhängig, das kann jeder Mensch, der sich damit beschäftigt machen.\
 \
 **Also jeder Einzelne kann dazu beitragen?**\
 Absolut ja. Aber der Einfluss auf die Welt ist immer ein bisschen schwierig. Als junger Idealist habe ich mir schon gedacht, ich könnte die Welt ein bisschen verändern, wenn man Leute zum Nachdenken anregt, heute sage ich mir, nein, das geht nicht, aber ich kann ein Vorbild sein.
@@ -115,8 +112,6 @@ Wir opfern oft Blumen, Trankopfer sowie Speiseopfer oder wir spenden als Opfer a
 
 **Viele Menschen assoziieren Hexerei mit Katzen. Hast du eine Katze?**\
 Leider nicht mehr. Ja, ich hatte Katzen und ich liebe Katzen. Die Letzte ist vor zwei Jahren ins Sommerland gezogen. Alle meine Katzen sind aber sehr alt geworden. Also, ich liebe auch Hunde und Meerschweinchen, aber Katzen haben tatsächlich einen anderen Zugang zur Anderswelt. Wenn ich Besuch aus anderen Welten hatte oder etwas Magisches gearbeitet habe, das ist jetzt wieder ein Klischee, Luna, eine schwarze Katze, die hat das gespürt. Die war drei Zimmer weiter und ich habe begonnen in meinem Raum zu visualisieren, Elemente begrüsst, die ist aufgesprungen, kam rein, hat sich hingesetzt und mir zugeschaut. Wenn ich einen schlechten Traum hatte oder von einer unfreiwilligen Ermessensreise zurückgekommen bin und etwas mitgenommen haben, die Katzen habe das gesehen. Alle drei waren auf dem Bett und haben hingestarrt. Katzen haben einen anderen Draht. Hunde übrigens auch, dass wird oft unterschätzt, aber Hunde drücken es wahrscheinlich anders aus.
-
-
 
 {{<box>}}\
 <>**Wilhelm Haas, 58-jährig, geboren im katholischen Wien, betreibt seit 2001 seinen Hexenladen «Zwischenwelt» in Luzern. Er ist eine Hexe und Wicca-Priester.**\
