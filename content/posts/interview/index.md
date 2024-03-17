@@ -49,7 +49,7 @@ Der hat mir nie zugesagt. Ich hatte schon in der Schule Probleme, weil ich immer
 Ja, gut. Ich bin privat so, wie ich bin. Ich renne natürlich nicht herum mit einer Fahne, wo draufsteht «ich bin eine Hexe und alles ist Magie». Für die bin ich einfach der Willi. Es ist klar, manchmal fragen sie mich um Rat oder ob ich ihnen eine Kerze oder eine Flasche Ritualwein mache. Ich habe viele atheistische Kollegen. Die haben auch kein Problem damit. Schliesslich wissen sie, dass ich mich schon immer dafür interessiert habe.\
 \
 {{<box>}}\
-"In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre"\
+In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre\
 {{</box>}}
 
 **Was ist der tiefere Sinn des Namens deines Ladens «Zwischenwelt»?**\
@@ -63,7 +63,7 @@ Also, ist das Wiccatum ohne eine gewisse Hierarchie?**\
 Die gibt es innerhalb von Coven. In einem traditionellen Coven gibt es Hohenpriesterinnen und Hohenpriester als Leiter. Es gibt aber auch Coven die unhierarchisch arbeiten.\
 \
 {{<box>}}\
-"Ich finde, dass seit Corona die Leute ein bisschen abergläubischer geworden sind"\
+Ich finde, dass seit Corona die Leute ein bisschen abergläubischer geworden sind\
 {{</box>}}
 
 **Bemerkst du gesellschaftliche Veränderungen in der Wahrnehmung der Wiccas speziell in der Schweiz?**\
@@ -88,7 +88,7 @@ Genau, wo irgendwo ein Mythos auf dich wirkt. Ich sage es mal so: «man spürts�
 Dadurch, dass es vor allem keine Zentralstelle gibt, die dir vorschreibt, was du zu tun hast. Dann eben, dass Wiccas mit dem Götterbild arbeiten, von dem sie sich angesprochen fühlen. Also, wir haben keine Gottheit, die zentral oben steht. Vor allem aber, dass dem Weiblichen in Wicca einer grosser, ursprünglich sogar einem grösseren Wert zugesprochen wurde als dem Männlichem. Das heisst, die Göttin war immer ein Faktor in Wicca. Das weiblich-göttliche findet man in abrahamitischen Religionen nicht mehr so.\
 \
 {{<box>}}\
-"Wir beten unsere Götter nicht an"\
+Wir beten unsere Götter nicht an\
 {{</box>}}
 
 **Also kann man sagen, dass jede Wicca ihre Lieblingsgottheit hat?**\
@@ -101,7 +101,7 @@ Ja, das ist ein Klischee. Es gibt viele Leute, die mit nordischen oder keltische
 Die Frage ist, ob du einem Coven beitreten möchtest, respektiv in einem Zirkel eine Ausbildung machst. Dann bist du eine Zeit lang dabei und wenn die anderen das Gefühl haben, dass passt, dann durchläufst du ein Aufnahmeritual. Dann hast du die erste Initiation und gehst den offiziellen Weg und dort drin kannst du bis zur Priesterschaft aufsteigen.\
 \
 {{<box>}}\
-"Kraftorte findet man überall, sogar in der Stadt, dass vergessen viele"\
+Kraftorte findet man überall, sogar in der Stadt, dass vergessen viele\
 {{</box>}}
 
 **Welche Bedeutung haben Wälder für dich? Gibt es dort spezielle Kraftorte?**\
@@ -123,7 +123,7 @@ Ich denke, viele Menschen kommen nicht mehr damit zurecht, was gesetzmässig gep
 **Das ist faszinierend, wenn man bedenkt, dass diese Religion, die Vorläufer oder Inspirationen, die bei heutigen Bewegungen wie den Wiccas beispielsweise, auf so alte Religionen und Traditionen zurückgehen.** Wicca ist eine moderne Religion, die einen eklektischen Pfad geht. Da wurde Ritualistik aus der rohen Magie, aus der Zeremonialmagie übernommen und abgeändert. Es ist ein Mischmasch aus alten und okkulten Religionen. Es geht um den Versuch die Naturspiritualität mehr zu integrieren, aber auch den Schamanismus und die Hexenzirkel.\
 \
 {{<box>}}\
-"Grundsätzlich lieben Heiden die Natur, die Tiere"\
+Grundsätzlich lieben Heiden die Natur, die Tiere\
 {{</box>}}
 
 **In Gesprächen mit Menschen in meinem Umfeld wird dem Thema Paganismus mit Vorurteilen, wie Blutopfer oder Hexerei, begegnet. Wie kann man dazu beitragen diese Vorurteile zu entkräften?**\
