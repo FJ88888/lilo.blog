@@ -124,6 +124,8 @@ Wir opfern oft Blumen, Trankopfer sowie Speiseopfer oder wir spenden als Opfer a
 **Viele Menschen assoziieren Hexerei mit Katzen. Hast du eine Katze?**\
 Leider nicht mehr. Ja, ich hatte Katzen und ich liebe Katzen. Die Letzte ist vor zwei Jahren ins Sommerland gezogen. Alle meine Katzen sind aber sehr alt geworden. Also, ich liebe auch Hunde und Meerschweinchen, aber Katzen haben tatsächlich einen anderen Zugang zur Anderswelt. Wenn ich Besuch aus anderen Welten hatte oder etwas Magisches gearbeitet habe, das ist jetzt wieder ein Klischee, Luna, eine schwarze Katze, die hat das gespürt. Die war drei Zimmer weiter und ich habe begonnen in meinem Raum zu visualisieren, Elemente begrüsst, die ist aufgesprungen, kam rein, hat sich hingesetzt und mir zugeschaut. Wenn ich einen schlechten Traum hatte oder von einer unfreiwilligen Ermessensreise zurückgekommen bin und etwas mitgenommen haben, die Katzen habe das gesehen. Alle drei waren auf dem Bett und haben hingestarrt. Katzen haben einen anderen Draht. Hunde übrigens auch, dass wird oft unterschätzt, aber Hunde drücken es wahrscheinlich anders aus.
 
-**Vielen Dank für deine Zeit.**
+**Vielen Dank für das interessante Gespräch.**
 
-**Wilhelm Haas, 58-jährig, geboren im katholischen Wien, betreibt seit 2001 seinen Hexenladen «Zwischenwelt» in Luzern. Er ist eine Hexe und Wicca-Priester.**
+{{<box>}}\
+**Wilhelm Haas, 58-jährig, geboren im katholischen Wien, betreibt seit 2001 seinen Hexenladen «Zwischenwelt» in Luzern. Er ist eine Hexe und Wicca-Priester.**\
+{{</box>}}
