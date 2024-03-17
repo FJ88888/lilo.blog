@@ -14,10 +14,10 @@ footnotes = "Fotos Ferris Jost\\\nAugenschein vor Ort\\\nPersönliches Gespräch
 
 ### Tauchen Sie ein in die Welt der modernen Hexen: Eine Reise durch die keltische Mythologie, die Verehrung der Götter und die geheimnisvolle Zwischenwelt".
 
-\
-**Im Gespräch mit Wilhelm Haas über moderne Hexen, Kelten, Götter und die Zwischenwelt.** 
-
+{{<lead>}}\
+**Im Gespräch mit Wilhelm Haas über moderne Hexen, Kelten, Götter und die Zwischenwelt.** \
 **Wilhelm Haas ist eine bekennende Hexe. Er hat mir erzählt, wie er seinen Weg in die Wicca-Bewegung gefunden hat und was Magie im 21. Jahrhundert für ihn bedeutet.** \
+{{</lead>}}\
 \
 Ich treffe Wilhelm Haas in seinem Laden «Zwischenwelt» in Luzern. Ein Sammelsurium von spirituellen Symbolen, Runen, Bücher und Räucherwerken umgibt uns. Es riecht nach Räucherstäbchen.
 
