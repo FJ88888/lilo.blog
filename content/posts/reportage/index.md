@@ -3,7 +3,7 @@ title = "Reportage"
 date = "2024-03-16"
 draft = false
 pinned = false
-image = "gottini.jpg"
+image = "gottinii.jpg"
 +++
 # Zu Besuch in der "Zwischenwelt"
 
