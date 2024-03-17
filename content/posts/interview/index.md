@@ -50,7 +50,7 @@ Ja, gut. Ich bin privat so, wie ich bin. Ich renne natürlich nicht herum mit ei
 \
 {{<box>}}\
 "In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre"\
-{{</box}}
+{{</box>}}
 
 **Was ist der tiefere Sinn des Namens deines Ladens «Zwischenwelt»?**\
 Ah, das ist eine coole Frage. In letzter Zeit kommen immer wieder Leute zu mir, die das Gefühl haben, es habe etwas mit dem Fegefeuer zutun. Das stimmt nicht. Der Gedanke, den ich mir gemacht habe ist, dass wir als Wicca einen heiligen Raum schaffen. In unseren Ritualen ziehen wir Kreise und schaffen eine Sphäre. Dazu sagen wir «es ist ein Raum, der sich zwischen den Welten befindet». Du bist im einen in der Realität, aber du schaffst quasi wie einen heiligen Raum, wo du den Übertritt in andere Bewusstseinszustände oder in eine Anderswelt machst. Für mich ist diese Sphäre die Zwischenwelt. Deshalb habe ich den Laden auch so genannt.
@@ -89,7 +89,7 @@ Dadurch, dass es vor allem keine Zentralstelle gibt, die dir vorschreibt, was du
 \
 {{<box>}}\
 "Wir beten unsere Götter nicht an"\
-{{</box}}
+{{</box>}}
 
 **Also kann man sagen, dass jede Wicca ihre Lieblingsgottheit hat?**\
 Ich würde nicht sagen Lieblingsgottheit, das klingt so, als würde man einen Star anhimmeln. Wir beten unsere Götter nicht an, nicht so wie im Katholizismus. Sie sind von uns ein Teil in der Welt, sind auch ein Teil von uns selber und gleichwohl erfahrbar in anderen Realitäten.
@@ -102,7 +102,7 @@ Die Frage ist, ob du einem Coven beitreten möchtest, respektiv in einem Zirkel 
 \
 {{<box>}}\
 "Kraftorte findet man überall, sogar in der Stadt, dass vergessen viele"\
-{{</box}}
+{{</box>}}
 
 **Welche Bedeutung haben Wälder für dich? Gibt es dort spezielle Kraftorte?**\
 Kraftorte finde man überall, sogar in der Stadt, dass vergessen viele. Auch Kirchen sind oft an Kraftorten gebaut. Ich spüre wie es vibriert. Aber die freie Natur ist absolut unschlagbar. Draussen den Kontakt zu knüpfen, sich wieder zu besinnen, den Ursprung des Lebens, das Göttlich eben, das ist schon etwas Besonderes. Gewisse Orte pulsieren. Der Pilatus zum Beispiel ist ein heiliger Ort, der hat besonders starke maskuline Energie. Die Rigi, wenn ich dort rauf gehe, spüre ich die eher weichere, femininere Energie.\
@@ -122,9 +122,9 @@ Ich denke, viele Menschen kommen nicht mehr damit zurecht, was gesetzmässig gep
 
 **Das ist faszinierend, wenn man bedenkt, dass diese Religion, die Vorläufer oder Inspirationen, die bei heutigen Bewegungen wie den Wiccas beispielsweise, auf so alte Religionen und Traditionen zurückgehen.** Wicca ist eine moderne Religion, die einen eklektischen Pfad geht. Da wurde Ritualistik aus der rohen Magie, aus der Zeremonialmagie übernommen und abgeändert. Es ist ein Mischmasch aus alten und okkulten Religionen. Es geht um den Versuch die Naturspiritualität mehr zu integrieren, aber auch den Schamanismus und die Hexenzirkel.\
 \
-{{<box}}\
+{{<box>}}\
 "Grundsätzlich lieben Heiden die Natur, die Tiere"\
-{{</box}}
+{{</box>}}
 
 **In Gesprächen mit Menschen in meinem Umfeld wird dem Thema Paganismus mit Vorurteilen, wie Blutopfer oder Hexerei, begegnet. Wie kann man dazu beitragen diese Vorurteile zu entkräften?**\
 Menschen, die Vorurteile haben, sind oft streng religiös. Sie werden die Sachen immer verteufeln, weil sie es so gelernt haben und weil sie alles was nicht mit Gott zu tun hat, aufgrund der kirchlichen Lehre automatisch nicht gut finden. Pagans (Heiden, Anmerkung Redaktion) sind alle nicht gottgläubigen, im christlichen Sinne, also für Katholiken sind sogar Hindus Pagans, weil es nicht dem christlichen Glauben entspricht.\
