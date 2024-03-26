@@ -3,7 +3,7 @@ title = "Slawischer Neopaganismus"
 date = "2024-03-07"
 draft = false
 pinned = false
-image = "screenshot-2024-03-07-135652.png"
+image = "screenshot-2024-03-07-140821.png"
 +++
 **Slawischer Neopaganismus:**
 
